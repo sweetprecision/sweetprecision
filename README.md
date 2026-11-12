@@ -14,7 +14,7 @@ $\color{#E7C6B5}{\text{I AM SO TORN BETWEEN TF2 AND DEADLOCK BRO STRANGLES MYSEL
 <details>
 <summary> </summary>
 
-$\color{#E7C6B5}{\text{greetings! i go by yuko , ludwig OR dorian! any name or nickname is fine since i do prefer them}}$
+$\color{#E7C6B5}{\text{greetings! i go by yuko , ludwig OR règis! any name or nickname is fine since i do prefer them}}$
 $\color{#E7C6B5}{\text{I loovvee making friends so dont be shy to talk and interact with me even if I have dni in my name, I will always be open or
 not especially when burnt out or buzzed off}}$
 $\color{#E7C6B5}{\text{CUDDLE AND HUG IS HEAAAVVILLYY ENCOURAGED PLEASE CUDDLE WITH ME I YEARN IT FOR IITT I mostly like being hidden when cuddled but you can hide behind me too!}}$ 
