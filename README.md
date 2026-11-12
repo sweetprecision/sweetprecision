@@ -5,11 +5,11 @@ $\color{#E7C6B5}{\text{I AM SO TORN BETWEEN TF2 AND DEADLOCK BRO STRANGLES MYSEL
 
 </details>
 
-<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/1737e4a7-4f71-4ab4-afbf-cb1e4ab85544" />
+<img width="736" height="414" alt="8a49e6a3a8bb19b60e6a38eea3264155" src="https://github.com/user-attachments/assets/d86af928-c503-45c1-aa65-87d769655da7" />
 
 *******************************************
 
-<img width="736" height="569" alt="Image" src="https://github.com/user-attachments/assets/9d029e10-f4e6-44d6-8b01-40d10341b521" />
+<img width="736" height="414" alt="d1a1017fc73866a90aa468096eac67dd" src="https://github.com/user-attachments/assets/ceb6f6d8-c0ee-42f6-8446-5d375ad787da" />
 
 <details>
 <summary> </summary>
